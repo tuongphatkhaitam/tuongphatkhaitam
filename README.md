@@ -1,16 +1,15 @@
-## Hi there 👋
+# Xưởng Chế Tác Tượng Phật Khai Tâm
 
-<!--
-**tuongphatkhaitam/tuongphatkhaitam** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Chế tác tượng Phật thủ công tại xưởng — Thích Ca, A Di Đà, Quan Âm, Dược Sư, Di Lặc, Địa Tạng và nhiều dòng tượng khác. Diện tướng đúng chuẩn mực Chánh Pháp, kích thước theo thước Lỗ Ban.
 
-Here are some ideas to get you started:
+🌐 Website: https://tuongphatkhaitam.vn
+📿 About.me: https://about.me/tuongphatkhaitam
+📘 Facebook: https://www.facebook.com/profile.php?id=61595403554664
+▶️ YouTube: https://www.youtube.com/@tuongphatkhaitam
+📌 Pinterest: https://www.pinterest.com/tuongphatkhaitam/
+💼 LinkedIn: https://www.linkedin.com/in/tuongphatkhaitam/
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+📞 Hotline: 0838.400.400
+📍 936 Nguyễn Kiệm, Phường Hạnh Thông, Quận Gò Vấp, TP. Hồ Chí Minh, Việt Nam
+
+*Tạc tượng xuất phát từ cái tâm — Khai Tâm mở trí, kết duyên lành Chánh Pháp.*
